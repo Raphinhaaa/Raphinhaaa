@@ -8,11 +8,10 @@ Eu sou aluno Raphael 🐒🇧🇷
 
 
 
-
 ## você pode entrar em contato comigo 🐒
 
-𝕴𝕲: 𝖗𝖕𝖍_𝖟𝖜𝖊
+𝐈𝐆: 𝐫𝐩𝐡_𝐳𝐰𝐞
 
 
 
-![](https://media1.tenor.com/m/MaEjFfzcgewAAAAd/monkey.gif)
+![](https://media1.tenor.com/m/OBzGUmGbIL8AAAAd/bigsmile-monkey.gif)
