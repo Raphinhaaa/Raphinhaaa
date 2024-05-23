@@ -14,4 +14,4 @@ Eu sou aluno Raphael 🐒🇧🇷
 
 
 
-![](https://media1.tenor.com/m/2gyy4BcsLWsAAAAd/monkey-confused.gif)
+![](https://media1.tenor.com/m/3KK0V7QiJ_8AAAAd/giantsbetta-small-monkey.gif)
